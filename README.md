@@ -1,4 +1,4 @@
-# The <REDACTED> Summit
+# The ■■■■■■ Summit
 
 
 
